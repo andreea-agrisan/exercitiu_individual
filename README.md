@@ -1,0 +1,2 @@
+# exercitiu_individual
+ 
